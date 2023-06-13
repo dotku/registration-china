@@ -7,6 +7,8 @@
 * https://nhglobalpartners.com/countries/china/company-registration/
 * https://www.tetraconsultants.com/
 * https://www.smeschina.com/
+* https://www.integra-group.cn/
+* https://osome.com/
 
 1. Company formation: $490, each additional shareholder costs $87
 2. China office address: $370/year (mail forwarding, dealing with business bureau visiting)
